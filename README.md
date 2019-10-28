@@ -8,3 +8,9 @@
 在新的时代中，我们这一辈软件测试工程师如何看破混沌，确立心中的“道”
 
 
+https://baike.baidu.com/item/%E5%B8%8C%E8%85%8A%E8%AF%B8%E7%A5%9E/2965806?fr=aladdin
+
+盖娅 Gaia
+塔尔塔勒斯  Tartarus
+厄瑞玻斯 Erebus
+乌拉诺斯 Uranus
